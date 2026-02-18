@@ -1,7 +1,7 @@
 - 👋 Hi, I’m NOEL
-- 👀 I’m interested in nothing
-- 🌱 I’m currently learning 9th class
-- 💞️ I’m looking to collaborate on nothing
+- 👀 I’m interested in cooking my tablet 
+- 🌱 I’m currently about to finish 10th class
+- 💞️ I’m looking to collaborate with nothing 
 - ⚡ Fun fact: I am lazy
 
 <!---
